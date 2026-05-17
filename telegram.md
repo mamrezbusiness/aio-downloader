@@ -7,6 +7,127 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/28 00:33
+---
+
+## WithYashar — post 11520
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هم اکنون گزارش CNN: ترامپ تیم امنیت ملی ارشد خود را برای بحث در مورد ایران فراخواند
+@withyashar
+</div>
+
+## WithYashar — post 11519
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پست ترامپ از تیر اندازی به پرچم در تلویزیون ایران فیک است !( این کار انجام شده ولی ترامپ چنین پستی منتشر نکرده ! اکانت فیک ترامپ در X منشع این خبر است
+</div>
+
+## FoxNewsTwitter — post 341861
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_341861_1779051811.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+BREAKING: Two Navy EA18-G jets collided in midair while performing an aerial demonstration for the Mountain Home Air Force Base Gunfighter Skies Air Show on Sunday, the U.S. Navy confirmed to Fox News Digital. All four air crew successfully ejected. (Photo: Michael Katz)
+</div>
+
+## VahidOnline — post 75524
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_75524_1779051812.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پست ترامپ: بای‌بای "قایق‌های تندرو"
+realDonaldTrump
+
+📡 @VahidOnline
+</div>
+
+## FarsiVOA — post 218008
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️افزایش زن‌کشی و خشونت؛ هشدار فعالان حقوق زن درباره وضعیت زنان در افغانستان و ایران
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 218007
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️انتصاب قالیباف در امور چین؛ پیام درون‌حاکمیتی یا سیگنال به پکن؟
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 218006
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_218006_1779051812.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️وزارت دفاع عربستان اعلام کرد که صبح یکشنبه سه پهپاد پس از ورود به حریم هوایی پادشاهی از سمت آسمان عراق رهگیری و منهدم شدند. سخنگوی وزارت دفاع عربستان گفت این کشور حق پاسخ‌گویی در زمان و مکان مناسب را برای خود محفوظ می‌داند.
+@FarsiVOA
+</div>
+
+## IranianMinds — post 20303
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_20303_1779051813.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 پست ترامپ :
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20300
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 پست های جدید ترامپ :
+
+@IranianMinds
+</div>
+
+## alonews — post 120703
+
+<div align="center">
+  <a href="telegram/content/alonews_120703_1779051813.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ یهو ۸تا پست گذاشت
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120702
+
+<div align="center">
+  <a href="telegram/content/alonews_120702_1779051814.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈رسایی:
+اون دسته از مسئولینی که دلسوز کشور هستن در معرض ترور قرار دارن و نباید از موبایل استفاده کنن
+
+
+🔴مجری:
+پس چرا شما از موبایل استفاده میکنید؟
+
+
+🔴رسایی:
+😐
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/02/28 00:22
 ---
 
